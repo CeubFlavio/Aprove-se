@@ -1,2 +1,0 @@
-# Aprove-se
-Aprove-se
